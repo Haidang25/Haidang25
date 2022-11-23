@@ -1,3 +1,3 @@
-_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
+_**Do the best you can until you know better. Then when you know better, do better.**_
 
-Honore de Balzac
+Maya Angelou
